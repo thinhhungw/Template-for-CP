@@ -4,7 +4,7 @@
 - Feel free to check out my template! :33
 
 ## 📩 Contact me on Discord:
-Username: migu_2008
+- Username: migu_2008
 
 ## HAVE FUN!
-Follow my github profile for more :3
+- Follow my github profile for more :3
