@@ -1,4 +1,7 @@
 ## 🚀 FLEX MY TEMPLATE  
 - I've actually used this template in some major competitions.
 - It helps me code much faster.  
-- Feel free to check out my template! :33  
+- Feel free to check out my template! :33
+
+## HAVE FUN!
+Follow my github profile for more :3
