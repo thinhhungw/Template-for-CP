@@ -6,5 +6,5 @@
 ## 📩 Contact me on Discord:
 - Username: migu_2008
 
-## HAVE FUN!
+## 🎉 HAVE FUN!
 - Follow my github profile for more :3
